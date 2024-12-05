@@ -6,9 +6,9 @@
   
 - 📫 How to reach me: ritickraj35@gmail.com
   
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him 
   
-  
+  Connect with me: https://www.linkedin.com/in/ritik-kumar-669244309/****
 
 <!---
 ritick979/ritick979 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
